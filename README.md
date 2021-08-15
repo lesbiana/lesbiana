@@ -1,0 +1,4 @@
+- mancy!
+- gaming, medical science, cybersecurity, cats and gaming
+- starting discovering the world of coding and computer science
+- lesbiana#1212 on discord 
